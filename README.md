@@ -1,3 +1,3 @@
 # Wipro
-Wipro training program /n
+Wipro training program 
 PAPALI PRIYA RATAN SAHU
